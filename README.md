@@ -1,0 +1,1 @@
+# seb-w-k-active_zones_static_background_camera_exampl
